@@ -2,4 +2,4 @@
 
 ## Crafting Minecraft experiences since 2020!
 
-Creators of [Drag Championship](https://twitter.com/DCCempionatas)👑
+Creators of [Drag Championship](https://twitter.com/DCCempionatas) 👑
